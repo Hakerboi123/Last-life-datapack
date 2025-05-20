@@ -1,0 +1,2 @@
+# Last-life-datapack
+Idk
